@@ -91,11 +91,11 @@ This is my first project I started working
       <br>
       <br>
       <u>
-        : +91-7080855524<br>
+        : +91-9849694786<br>
         Call Now
 
         <br>
-        : support@cogentglobal.com<br>
+        : anwarahmedkhan666@gmail.com<br>
         Mail now</u>
 
 
