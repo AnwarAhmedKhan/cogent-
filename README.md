@@ -1,5 +1,3 @@
-# cogent-
-This is my first repository
 # cogent-global
 This is my first repository
 <!DOCTYPE html>
